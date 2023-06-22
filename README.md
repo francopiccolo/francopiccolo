@@ -1,4 +1,5 @@
-Senior Machine learning engineer @ Hostelworld  
-MS Analytics @ Georgia Tech
+Founder @ Data In Action   
+https://www.datainaction.co/   
 
-https://www.linkedin.com/in/francopiccolo/
+MS Analytics @ Georgia Tech   
+https://www.linkedin.com/in/francopiccolo/   
